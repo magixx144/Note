@@ -117,3 +117,28 @@ $
 ***leave off*** :； :fire: :baby: :shit:
 ***peculiar to*** :...
 ***roll out*** : 
+
+---
+
+## Day 4
+***give the lie to sth*** : ...
+***attainment*** *n.* 
+***to the core*** : 
+***ingenuity*** *n.* 
+***perseverance*** *n.* 
+***chop down*** : 
+***catastrophe*** *n.* 
+***perish*** *v.* 
+***parachute*** *n.*  *v.* 
+***be packed with*** : ；
+***due*** *adj.* ；；
+***receptive to*** : 
+***hail from*** : ；
+***press ahead*** : 
+***tell apart*** : ；
+***let rip*** : ；
+***ascribe...to*** : 
+***drop back to*** : ...；...
+***by all means*** : ；；
+***be bound to do sth*** : ；...
+***at large*** : ；；；
