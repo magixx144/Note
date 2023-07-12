@@ -142,3 +142,32 @@ $
 ***by all means*** : ；；
 ***be bound to do sth*** : ；...
 ***at large*** : ；；；
+
+---
+
+## Day 5
+***earnest*** *n.* 
+***kerosene*** *n.* 
+***refining*** *n.* 
+***blip*** *n.* 
+***emerging*** *adj.* 
+***underpriviledged*** *adj.* 
+***affluent*** *adj.* 
+***disparity*** *n.* 
+***phrase*** *n.* ； *v.* ；
+***be parallel with*** : ...
+***knock off*** : ；；；
+***by default*** : ；
+***let alone*** : ；
+***renege on*** : 
+***infuse sb. with sth.*** : ......；...
+***be hailed as...*** : ...
+***doze off*** : ；
+***pin down*** : ...；；；
+***sit for the bar*** : 
+***be put on hold*** : （）
+***weigh down*** : ；；
+***as a means of*** : ...；...
+***fall short*** : ；；（）；
+***to the effect that*** : ；
+***in the wake of*** : ；
